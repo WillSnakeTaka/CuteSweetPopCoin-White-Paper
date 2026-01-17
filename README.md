@@ -1,6 +1,9 @@
 # 🍭 CuteSweetPopCoin (CSPC)
 
-😎 **[All Future Updates](https://bahnmus.com)**
+😎 <a href="https://bahnmus.com" target="_blank" rel="noopener noreferrer">
+🔗 All Future Updates
+</a>
+
 
 **CuteSweetPopCoin (CSPC)** is a symbolic, cultural, musical, spiritual, and philosophical token created as part of the BahnMus universe.
 
