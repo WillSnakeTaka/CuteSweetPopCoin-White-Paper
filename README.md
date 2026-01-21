@@ -1,5 +1,7 @@
 # 🍭 CuteSweetPopCoin (CSPC)
 
+[Web Version](https://willsnaketaka.github.io/CuteSweetPopCoin-White-Paper/)☃️
+
 😎 🔗 **[All Future Updates](https://bahnmus.com)**
 
 
